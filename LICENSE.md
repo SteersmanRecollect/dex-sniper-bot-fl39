@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with dex sniper bot high-frequency Strategy | transaction-batching & blockchain-scanning, the #1 dex sniper bot. Includes transaction-batching and
 
 
 
